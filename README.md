@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ArooshJ
-# Hello, I'm [Your Name]
+# Hello, I'm Aroosh
 
 ## About Me
 
